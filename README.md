@@ -1,0 +1,1 @@
+# PavelStrateg.github.io
